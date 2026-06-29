@@ -1,4 +1,4 @@
-
+Experience enter brainrot heads like never before with custom enter brainrot heads Script, the #1 Script. Includes infinite resources and no cooldown
 
 
 
